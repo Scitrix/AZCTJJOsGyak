@@ -1,0 +1,2 @@
+Szeszák Ádám 
+AZCTJJ
